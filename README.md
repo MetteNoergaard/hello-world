@@ -1,2 +1,6 @@
 # hello-world
-I'm trying my best
+Hewwow
+
+Just your usual Slytherin gal' whos trying to become a multimediadesigner.
+
+I really like the flavour sweet chili!
